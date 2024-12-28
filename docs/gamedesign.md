@@ -19,3 +19,6 @@ https://www.nytimes.com/puzzles/spelling-bee
 https://www.nytimes.com/crosswords/game/mini
 
 https://www.nytimes.com/puzzles/letter-boxed
+
+
+word.tips
