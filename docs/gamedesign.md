@@ -1,4 +1,5 @@
 word puzzle
+
 https://ads.tiktok.com/business/creativecenter/tiktok-keyword/addictive%20puzzle%20game/pc/en?orderType=2&a=puzzle&period=7&page=7
 
 https://ads.tiktok.com/business/creativecenter/tiktok-keyword/word%20puzzle%20game/pc/en?orderType=2&a=puzzle&period=7&page=6
@@ -217,3 +218,10 @@ Citations:
 [9] https://community.articulate.com/blog/challenge-recaps/26-e-learning-examples-of-crossword-puzzle-games-240/1112150
 [10] https://www.thiagi.com/games/2015/4/13/may-four-level-crossword-puzzle-gamification
 ```
+
+
+turn image to puzzle
+
+https://iconic-puzzles.com/collections/all
+
+多人
