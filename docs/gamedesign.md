@@ -1,3 +1,18 @@
+word puzzle
+https://ads.tiktok.com/business/creativecenter/tiktok-keyword/addictive%20puzzle%20game/pc/en?orderType=2&a=puzzle&period=7&page=7
+
+https://ads.tiktok.com/business/creativecenter/tiktok-keyword/word%20puzzle%20game/pc/en?orderType=2&a=puzzle&period=7&page=6
+
+https://ads.tiktok.com/business/creativecenter/tiktok-keyword/word%20puzzle/pc/en?orderType=2&a=puzzle&period=7&page=4
+
+get yours get your own
+
+train your brain	
+
+level up
+
+
+
 I’m editor-in-chief of my school’s newspaper, and an avid crossword puzzler, and as such I want to start making puzzles of my own for the paper.
 
 https://www.cruciverb.com/index.php?action=ezportal;sa=page;p=71
